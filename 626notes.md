@@ -54,3 +54,55 @@
 
 **Next Steps for Study or Reflection:**
 
+
+# Sermon Notes - January 8, 2025  
+**Speaker/Pastor:** Ps. Soki  
+**Topic:** Ask, Seek, Knock  
+**Scripture Reference:** Matthew 7:7-8 (NIV)  
+*"Ask and it will be given to you; seek and you will find; knock and the door will be opened to you. [8] For everyone who asks receives; the one who seeks finds; and to the one who knocks, the door will be opened."*  
+
+---
+
+## Key Points:  
+
+### 1. Prayer is Relational  
+- Even sinful people give good gifts to their children.  
+- How much more will our Heavenly Father, who is free of sin and evil, provide for and bless us?  
+
+---
+
+### 2. Everyone Has Needs  
+- How do we access God’s power from heaven? **Simply ASK!**  
+- Scripture emphasizes that everyone who asks receives. (Matthew 7:8)  
+
+---
+
+### 3. Biblical Support  
+- **James 4:2:** *"You do not have because you do not ask."*  
+- **Mark 10:51:** The blind man, when asked what he needed, specifically requested his sight.  
+
+---
+
+## Application:  
+
+### A. Be Persistent  
+- Keep asking, seeking, and knocking.  
+- Persistence is key: continually approach God in prayer without giving up.  
+
+---
+
+### B. Be Precise  
+- Don’t be vague in your prayers.  
+- Use clear terms like "move," "bless," or "touch" instead of overthinking or generalizing your requests.  
+- Be specific about what you need from God.  
+
+---
+
+### C. Be Like a Child  
+- Children are unafraid to ask repeatedly and persistently for what they need.  
+- Seek and knock with confidence, knowing that God welcomes your persistence.  
+
+---
+
+## Conclusion  
+God desires a relationship with His children and encourages us to come to Him boldly, consistently, and with specific requests. Keep asking, seeking, and knocking, trusting in His goodness and His perfect timing.
