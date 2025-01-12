@@ -8,3 +8,5 @@ TITLE: Sermon Notes
   - [6:26 Sermon January 8 2025 - Ask, Seek, Knock](./626fast2025/6261082025.md)
   - [6:26 Sermon January 9 2025 - Trusting God with Your Prayers](./626fast2025/6261092025.md)
   - [6:26 Sermon January 10 2025 - God's Presence Loves Spaces and Places](./626fast2025/6261102025.md)
+
+**bold**
