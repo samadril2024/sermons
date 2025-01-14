@@ -71,5 +71,3 @@ The Campus Coordinator will help oversee the smooth operation and coordination o
    - Conduct follow-up meetings with leaders to assess needs and address any challenges.
 
 ---
-
-This documentation is designed to guide the preparation and execution of the Campus Coordinator role and ensure a successful downtown campus launch.
